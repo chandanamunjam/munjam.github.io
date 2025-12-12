@@ -1,1 +1,1 @@
-# munjam.github.io
+google.com, pub-8121607593433371, DIRECT, f08c47fec0942fa0
